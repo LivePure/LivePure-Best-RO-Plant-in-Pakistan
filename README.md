@@ -1,2 +1,3 @@
 # LivePure-Best-RO-Plant-in-Pakistan
 LIVEPURE is the best water filter brand in Pakistan who introduced Latest Ro Plant for Home. LivePure offers best price RO water filter plant with Matchless Quality , Exceptional design &amp; Services. Our domestic RO plants makes your home water into mineral water with its most advanced Reverse Osmosis water filtration technology. We also design &amp; assemble Commercial Ro plants, Bottle water filtration plants, water softener, ro membranes, water filter cartridges, booster pump, Mineral filter , alkaline filter, Activated Carbon block , UV water filter etc
+Livepure.com.pk
